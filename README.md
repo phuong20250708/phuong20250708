@@ -10,4 +10,4 @@
 
 本站汇聚了最新的高清影视资源，包含电影、纪录片、综艺等多种内容，支持跨平台无缝播放。我们每天更新，确保您第一时间享受最新资源，满足各种观影需求。无需注册，点击即播，致力于为您提供卓越、便捷的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phuong20250708/phuong20250708 ）</span>
